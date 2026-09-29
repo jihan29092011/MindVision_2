@@ -1,1 +1,0 @@
-# MindVision_2
